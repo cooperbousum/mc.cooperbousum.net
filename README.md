@@ -1,2 +1,1 @@
-# mc.cooperbousum.net
-<h1>hello</h1>
+cainen beaver you buffoon
